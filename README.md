@@ -13,3 +13,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+
+- 🌱 eu tenho 22 anos, amo tecnologia e é uma honra pra mim estar nessa comunidade tão rica e dinâmica
